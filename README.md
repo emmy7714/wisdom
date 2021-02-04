@@ -1,0 +1,2 @@
+# wisdom
+I love it
